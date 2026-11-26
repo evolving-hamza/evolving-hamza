@@ -12,4 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything related to AI.
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm the best lol😭
+- 💀 Goal: Becoming my best version.
 -->
